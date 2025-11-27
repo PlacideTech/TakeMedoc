@@ -25,3 +25,12 @@ Must have
 - [ ] itilizate a ap ka voye tex mesaj bay dokte li
 
 https://www.figma.com/design/yixmdrJHMUB8WC5GEyCtgQ/Untitled?node-id=0-1&t=ViC0VGOlI30hFP6T-1
+
+
+
+# Gif 
+
+
+
+https://github.com/user-attachments/assets/5845a2f4-49ec-4e8b-be25-a23f4d7c1df9
+
